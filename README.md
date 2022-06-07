@@ -3,8 +3,8 @@
 - 
 - The act of finding trends and patterns, creating dashboards and reports is what interests me most about this profession.
 - 
-- 💞️ I’m looking to collaborate with your organization in conducting market research analysis, 
-- identifying various business wants and proffering solutions to increase productivity for your organization; ...
+- 💞️ I’m interested in junior data analyst role  with organizations interested in conducting market research analysis, 
+- identifying various business wants and proffering solutions to increase productivity for such organizations; ...
 - 
 - 📫 How to reach me, you can send a mail via <oluwadarasimifavour@gmail.com>
 -  ...
